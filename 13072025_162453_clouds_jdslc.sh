@@ -1,0 +1,1 @@
+In ancient Rome, lead poisoning was a prevalent disease amongst the wealthy because of their extensive use of lead. Many Roman women died because of lead poisoning caused by the use of make-up that contained lead
